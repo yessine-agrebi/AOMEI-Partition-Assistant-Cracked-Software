@@ -1,0 +1,1 @@
+# AOMEI-Partition-Assistant-Cracked-Software
